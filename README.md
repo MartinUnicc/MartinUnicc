@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MartinUnicc
-- 👀 I’m interested in meeting humans intersted in IT, and considering joiing the United Nations Computing Center
+- 👀 I’m interested in meeting humans interested in IT, and considering joiing the United Nations Computing Center
 - 🌱 I’m currently learning Handpan 
 - 💞️ I’m looking to collaborate on job hunting 
 - 📫 How to reach me via message :)
